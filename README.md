@@ -22,7 +22,7 @@ https://bcnfudjy7ie9.feishu.cn/docx/OdKmdZclLo65yRx1gKpc4Uxmno9?from=from_copyli
 
 电脑版本也有！
 
-感兴趣的加我，一切为了回血...
+感兴趣的加我
 
 
 v:sjq1371413
